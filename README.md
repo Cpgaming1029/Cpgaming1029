@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... nothing
 - 📫 How to reach me ...@flightcohen@gmail.com
 - 😄 Pronouns: ... he, him
-- ⚡ Fun fact: ... you are gay
+- ⚡ Fun fact: ... you'er gay
 
 <!---
 Cpgaming1029/Cpgaming1029 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
